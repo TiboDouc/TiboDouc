@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Bim bam boom, I'm just practicing some things oom
+Heeeeey salut à tous les amis
